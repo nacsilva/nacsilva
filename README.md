@@ -1,3 +1,3 @@
 - sou estudante do JavaScript
 - 💞️ amo dormir 
--  nu, vai tomando 
+- nu vai tomando 
