@@ -8,7 +8,7 @@
 - amo carros 🚗
 
 
-![](https://media1.tenor.com/m/GvTeSb1hF68AAAAd/making-a-splash-justin-bieber.gif)
+![](https://media1.tenor.com/m/MLV7NcmSgKkAAAAC/selfie-justin-bieber.gif)
 
 
 
